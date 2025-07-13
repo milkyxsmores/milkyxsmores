@@ -5,3 +5,4 @@ hi I'm len!!
 — what else um i dont know
 
 i like forsaken i guess
+![image](https://www.google.com/search?q=mafioso+rework&client=ms-android-transsion&sca_esv=8b638d622ed6e848&udm=2&biw=360&bih=601&sxsrf=AE3TifNg_TKr59XUC516x_ILeokt7SfBOw%3A1752385515079&ei=60dzaP-_BPeuwcsP7-OomQY)
