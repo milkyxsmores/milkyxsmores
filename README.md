@@ -5,4 +5,5 @@ hi I'm len!!
 — what else um i dont know
 
 i like forsaken i guess
-![image](https://forsaken2024.fandom.com/wiki/File:MAFIOSOREDESIGNRENDER.png)
+
+![image](https://forsaken2024.fandom.com/wiki/File:MAFIOSOREDESIGNRENDER.jpg)
