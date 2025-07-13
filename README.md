@@ -6,4 +6,4 @@ hi I'm len!!
 
 i like forsaken i guess
 
-![image](https://forsaken2024.fandom.com/wiki/File:MAFIOSOREDESIGNRENDER.png)
+
