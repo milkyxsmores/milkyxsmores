@@ -5,4 +5,4 @@ hi I'm len!!
 — what else um i dont know
 
 i like forsaken i guess
-![image](MAFIOSOREDESIGNRENDER.png)
+![image](
