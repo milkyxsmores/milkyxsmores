@@ -6,6 +6,8 @@ hi I'm len!!
 
 — I usually follow friends , so.. haha... um yeah idk
 
+- I'm not really social, so you won't find me interacting first ..
+
 — what else um i dont know
 
 i like forsaken i guess
